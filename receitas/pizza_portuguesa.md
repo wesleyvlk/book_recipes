@@ -33,5 +33,3 @@
 7. Abra a massa com as mãos ou com um rolo.
 8. Coloque em formas untadas.
 9. Coloque o recheio e asse em forno alto por cerca de 20 minutos.
-
-###### [Voltar ↩️][(readme.md)]
